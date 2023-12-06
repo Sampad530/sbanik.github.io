@@ -1,4 +1,4 @@
-# Sampad Banik
+# Enthusiastic Researcher
 
 ## Education
 
